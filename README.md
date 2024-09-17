@@ -1,4 +1,4 @@
-**LINK JOIN**: [xKuCoin](https://t.me/xkucoinbot/kucoinminiapp?startapp=cm91dGU9JTJGdGFwLWdhbWUlM0ZpbnZpdGVyVXNlcklkJTNEMTE3MDE1ODUwMCUyNnJjb2RlJTNE)
+## 🎁 **LINK JOIN**: [xKuCoin](https://t.me/xkucoinbot/kucoinminiapp?startapp=cm91dGU9JTJGdGFwLWdhbWUlM0ZpbnZpdGVyVXNlcklkJTNEMTE3MDE1ODUwMCUyNnJjb2RlJTNE)
 
 ## 📢 Telegram Group
 
